@@ -19,8 +19,6 @@
 
 - 📫 How to reach me **saran.kamandula999@gmail.com**
 
-- 📄 Know about my experiences [ADP, DIEBOLD NIXDORF, MIRACLE SOFTWARE SYSTEMS](ADP, DIEBOLD NIXDORF, MIRACLE SOFTWARE SYSTEMS)
-
 - ⚡ Fun fact **I have a hidden Actor in me!**
 
 ### Blogs posts
